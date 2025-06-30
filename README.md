@@ -60,7 +60,7 @@ Below is a preview of the dashboard:
 
 ## Connect with Me
 
-Feel free to connect with me on LinkedIn: [Shreyash Supe](https://www.linkedin.com/in/shreyashsupe/)
+Feel free to connect with me on LinkedIn: [Kamal Dev](http://www.linkedin.com/in/kamaldev11)
 
-You can also reach me via email at: [shreyashsupe11@gmail.com](mailto:shreyashsupe11@gmail.com)
+You can also reach me via email at: [raokamal535@gmail.com]
 
